@@ -1,1 +1,0 @@
-# novelqademo.github.io
